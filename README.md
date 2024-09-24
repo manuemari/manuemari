@@ -7,9 +7,7 @@
  ## soy apasionada por la naturaleza, me gustan en los animales y las plantas
 
 
-## tecnologias 
-para el analisis de datos me enfoque en aprender sql y python, centrandome en pandas, numpy y matplotlib. 
-para la 
+
 
 ## habilidades 
 puedo trabajar en equipo, me gusta escribir y se me facilita la lecutra, trato de tomar un puesto de lider. 
