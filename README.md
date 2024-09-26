@@ -4,5 +4,10 @@ Soy apasionada por la naturaleza, me gustan en los animales y las plantas
 
 Me incline por aprender SQL y python enfocado al analisis de datos. 
 
-Ingles B2 
+Ingles B2 y español nativo, quiero aprender portugues o incluso italiano. 
+Soy apasionada a leer, asi que eso ha ayudado de sobremanera a mi nivel de inglés. 
+oskdnfs
+osidnfw
+fljsbfpwein
+wldfbwoef
 
